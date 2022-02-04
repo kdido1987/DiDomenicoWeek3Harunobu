@@ -1,5 +1,4 @@
-# DiDomenicoWeek3Harunobu
-DiDomenico Week 3 Harunobu
+
 Suzuki Harunobu (Japanese, 1725–1770)
 
 Beauty Under an Umbrella in the Snow
